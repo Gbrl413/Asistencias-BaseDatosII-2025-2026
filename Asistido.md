@@ -1,1 +1,1 @@
-Asistido 👍 clase 25/2
+Asistido 👍 clase 02/3
